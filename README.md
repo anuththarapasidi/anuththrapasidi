@@ -1,4 +1,4 @@
-# Hi, I'm Pasidi Anuththara 👋
+# Hi, I'm Pasidi Anuththara. 👋
 
 ### 💻 Student Developer | Software Engineering | AI Enthusiast
 
